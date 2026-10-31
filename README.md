@@ -270,6 +270,9 @@ fpdf
 
 
 
+**Mahnoor Arif**  
+B.Sc. Data Science — University of the Punjab (2022–2026)  
+📧 mahnoorarif138@gmail.com
 
 **Sidra Siddique**  
 B.Sc. Data Science — University of the Punjab (2022–2026)  
